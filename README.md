@@ -1,3 +1,3 @@
 # getting-to-know-eachother-teams
-Anthony Mastores, 
+Anthony Mastores 
 anthonyjmastores@lewisu.edu
